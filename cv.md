@@ -1,3 +1,0 @@
-#Pavel Karelin
-
-##contacts
